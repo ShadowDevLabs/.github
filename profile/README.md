@@ -30,7 +30,7 @@ Join us below to access links through our state-of-the-art dispenser. Engage wit
 
 👉 [Join our Discord](https://discord.gg/p9h3dTHAMA) 👈
 
-## Legal Note
+## NOTICE
 
 While PhantomWebWorks's proxy, Shadow is designed to help you bypass restrictions, please be sure to use it responsibly and follow the regulations in place. Do not DO anything illegal on this site, and we do not support this.
 
