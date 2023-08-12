@@ -3,7 +3,7 @@
 🌐 Website: [https://www.phantomnetwork.cloud](https://www.phantomnetwork.cloud)
 📣 Join us on Discord: [Phantom Web Works Discord](https://discord.gg/p9h3dTHAMA) 🎉
 
-Welcome to PhantomWebWorks, your ultimate solution for effortlessly bypassing school restrictions and accessing your favorite websites. Say goodbye to blocked content and hello to unrestricted browsing with our simple yet powerful proxy site! 🕶️🌐
+Welcome to PhantomWebWorks, your solution to bypassing school restrictions and accessing your favorite websites. Say goodbye to blocked content and hello to unrestricted browsing with our simple yet powerful proxy site! 🕶️🌐
 
 ## What is PhantomWebWorks?
 
