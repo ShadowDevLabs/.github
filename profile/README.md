@@ -1,12 +1,12 @@
-# **Phantom Web Works - School Unblocking Network** 🚀
+# **Phantom Network - School Unblocking Network** 🚀
 
 🌐 Website: [https://www.phantomnetwork.cloud](https://www.phantomnetwork.cloud)
 
-📣 Discord: [Phantom Web Works Discord](https://discord.gg/p9h3dTHAMA) 🎉
+📣 Discord: [Phantom Network Discord](https://discord.gg/p9h3dTHAMA) 🎉
 
 Welcome to PhantomWebWorks, your solution to bypassing school restrictions and accessing your favorite websites. Say goodbye to blocked content and hello to unrestricted browsing with our simple yet powerful proxy site! 🕶️🌐
 
-## What is PhantomWebWorks?
+## What is PhantomNetwork?
 
 Are you tired of hitting the school's internet restrictions that prevent you from accessing your games and your favorite sites? Look no further! PhantomWebWorks created an unblocked proxy site called Shadow. It's a hassle-free, user-friendly proxy site that lets you bypass those annoying restrictions and enjoy unrestricted access to the content you love.
 
@@ -35,4 +35,4 @@ Join us below to access links through our state-of-the-art dispenser. Engage wit
 
 While PhantomWebWorks's proxy, Shadow is designed to help you bypass restrictions, please be sure to use it responsibly and follow the regulations in place. Do not DO anything illegal on this site, and we do not support this.
 
-🌐🔓 **Phantom Web Works - Dedicated to Bypassing School Restrictions** 🌐🔓
+🌐🔓 **Phantom Network - Dedicated to Bypassing School Restrictions** 🌐🔓
